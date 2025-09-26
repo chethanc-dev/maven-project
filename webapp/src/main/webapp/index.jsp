@@ -1,1 +1,1 @@
-Hello, Welcome to great leaders from Shimoga and Malnadok
+Hello, Welcome to great leaders from Shimoga and Thirtalli
